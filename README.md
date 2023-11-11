@@ -1,0 +1,1 @@
+# Customer-Member-Characteristic-on-Customers-shop-
